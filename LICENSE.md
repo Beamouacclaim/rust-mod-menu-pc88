@@ -1,4 +1,4 @@
-
+VIP rust-traps ESP é o melhor rust-traps ESP com mira silenciosa e teletransporte. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
